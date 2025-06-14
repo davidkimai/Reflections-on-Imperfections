@@ -81,7 +81,7 @@ And so, if my prose sometimes sounds like a soliloquy from an underfunded tragic
 
 If the only wisdom we ever achieve is the knowledge that even our best performances are laced with self-parody, so be it. After all, what is the cosmic punchline if not a final acknowledgment that nobody gets out with their dignity unrumpled, or their philosophical trousers unsoiled?
 
-## Imperfections As The New Perfections
+## Imperfections As The New Perfections?
 
 It is a recurring, if not recursive, delight to realize that most of the artifacts people remember me by—my “signature moves,” so to speak—were not the ones meticulously engineered for posterity, but rather the awkward improvisations, the hastily coded function that “shouldn’t work but does,” or the accidental allusions tucked between a bout of bravado and a sexual pun.
 
