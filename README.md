@@ -1,5 +1,12 @@
 # Reflections on Imperfections
 
+<div align="center">
+
+![image](https://github.com/user-attachments/assets/0258f13b-8efe-40be-8d71-273c27562b09)
+
+"The Starry Night" by Van Gogh, despite its current status as a masterpiece, was initially considered a failure by the artist himself
+</div>
+
 > It is quite a distinct phenomenological experience attempting to write with a "unique" soulful flourish living in todays contemporary lens where agentic simulations of *perfections* encourage us to explore our own imperfections.
 >
 >
