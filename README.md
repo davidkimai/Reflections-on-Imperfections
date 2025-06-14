@@ -1,6 +1,6 @@
 # Reflections on Imperfections
 
-> It is quite a distinct phenomological experience attempting to write with a "unique" soulful flourish living in todays contemporary lens where agentic simulutions of *perfections* encourage us to explore our own imperfections.
+> It is quite a distinct phenomological experience attempting to write with a "unique" soulful flourish living in todays contemporary lens where agentic simulations of *perfections* encourage us to explore our own imperfections.
 >
 >
 > How do we maintain our uniqueness in a world of ever-increasingly cold perfection? Should we include extra typoss? More philosophical soul? Rejections of AI writing stigmatization by coveting em dashes? Reflection Remixes layered over memories and further reflections of past experience? 
