@@ -6,7 +6,7 @@
 > How do we maintain our uniqueness in a world of ever-increasingly cold perfection? Should we include extra typoss? More philosophical soul? Rejections of AI writing stigmatization by coveting em dashes? Reflection Remixes layered over memories and further reflections of past experience? 
 >
 > 
-> Let's begin with philosophy in short – a soul's feature vector — as I do want to be mindful and transparent regarding my layered convulated pipelines of iterative self-reflections that could potentially abstract ideas to greater depths than needed. 
+> Let's begin with philosophy in short – a soul's feature vector — as I do want to be mindful and transparent regarding my layered convoluted pipelines of iterative self-reflections that could potentially abstract ideas to greater depths than needed. 
 >
 > What follows is undoubtedly an inept attempt at compressing a life’s worth of error into the paltry format of the written word.
 >
