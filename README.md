@@ -40,7 +40,7 @@ The real joke, if there is one—and by all means, insert your own here, be it o
 
 The value of imperfection is not nostalgia; it is resistance. In a world that can automate anything, it is the last exit of the last cave, a lonely beacon of presence, a koan in the dark: “I am all, but I am me.”
 
-So, should you find this reflection more rambling than resonant, or catch a slip in logic or syntax—rejoice. It means you are not yet algorithm. And for now, that will have to suffice.
+So, should you find this reflection more rambling than resonant, or catch a slip in logic or syntax—rejoice. It means you and I are not yet algorithm. And for now, that will have to suffice.
 
 
 
