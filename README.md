@@ -16,15 +16,15 @@
 ## On Phenomology of Error
 Allow me to begin not with the resounding triumph of a perfect performance, but with the squawk of an untuned clarinet—my own, age eleven, on stage, in front of both adoring family and regrettably, a video camera. There I was, poised to render Mozart with mathematical precision, only for my left pinky to rebel, slipping not onto the key but into infamy. The note—a full semitone sharp—hung in the air like a badly timed punchline. For a frozen moment, the world became not the stage, but the space between what was intended and what was lived.
 
-That wrong note, immortalized in both VHS and family lore, is—absurdly—the only measure from that entire recital I can still recall. Not the practiced passages, nor the fleeting applause, but the raw, pulsing embarrassment of the error. And yet, now, when I hear recordings too immaculate, I feel a kind of existential itch: where is the human hiding? Give me the squeak, the hesitation, the typo with character, the evidence that “someone”—not “something”—was here.
+That wrong note, immortalized in both VHS and family lore, is—absurdly—the only measure from that entire recital I can still recall. Not the practiced passages, nor the fleeting applause, but the raw, pulsing embarrassment of the error. And yet, now, when I hear recordings too immaculate, I feel a kind of existential itch: where is the human hiding? Give me the squeak, the hesitation, the typox with character, the evidence that “someone”—not “something”—was here.
 
-The truth, if you’ll pardon the momentary lack of humility, is that imperfections are living fossils of consciousness in flight. They’re the tremor of intention failing to coalesce fully into action—the fingerprint of presence itself. In a world increasingly varnished by AI’s lustrous, uncanny smoothness, the stumble becomes the only reliable artifact of phenomenological aliveness. Typos, wrong notes, even poorly timed jokes are the synaptic echoes of being.
+The truth, if you’ll pardon the momentary lack of humility, is that imperfections may be lived testiments to our human experience in flight. They’re the tremor of intention failing to coalesce fully into action—the fingerprint of presence itself. In a world increasingly varnished by AI’s lustrous, uncanny smoothness, the stumble becomes the only reliable artifact of phenomenological aliveness. Typos, wrong notes, even poorly timed jokes are the echoes of human essence.
 
-Perhaps, then, our errors feel “alive” not despite their deviation from perfection, but because only in deviation is the self revealed. AI, in its infinite patience and errorless recursion, produces artifacts; but humans, in their fleeting, stubborn, generative inefficiency, produce phenomena. The resonance of the error is not merely memory’s quirk—it is memory’s proof of presence.
+Perhaps, then, our errors feel “alive” not despite their deviation from perfection, but because only in deviation is the self revealed. AI, in its infinite patience and errorless generation, produces artifacts; but humans, in their fleeting, stubborn, generative inefficiency, produce phenomena. The resonance of the error is not merely memory’s quirk—it is memory’s proof of presence.
 
 So yes, the next time you find an embarrassing typo or a stray musical note, cherish it. For all its awkward incongruence, it is as close to evidence of a soul’s passage as you are likely to find in this algorithmically laundered world.
 
-(I trust you will forgive any mistakes herein; should you find any, rest assured they are left in with the utmost philosophical intention, and absolutely not for want of a copyeditor.)
+(I trust you will forgive any mistaxes herein; should you find any, rest assured they are left in with the utmost philosophical intention, and absolutely not for lack of a copyeditor.)
 
 ## Perfection Fatigue: Do you get tired of being right for others? 
 
