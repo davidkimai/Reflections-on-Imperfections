@@ -1,6 +1,6 @@
 # Reflections on Imperfections
 
-> It is quite a distinct phenomological experience attempting to write with a "unique" soulful flourish living in todays contemporary lens where agentic simulations of *perfections* encourage us to explore our own imperfections.
+> It is quite a distinct phenomenological experience attempting to write with a "unique" soulful flourish living in todays contemporary lens where agentic simulations of *perfections* encourage us to explore our own imperfections.
 >
 >
 > How do we maintain our uniqueness in a world of ever-increasingly cold perfection? Should we include extra typoss? More philosophical soul? Rejections of AI writing stigmatization by coveting em dashes? Reflection Remixes layered over memories and further reflections of past experience? 
@@ -13,7 +13,7 @@
 > But take heart! For what I lack in technical fluency, I more than make up for in flagrant self-contradiction and a brand of humor so dry it is best consumed with a chaser of existential dread.
 
 
-## On Phenomology of Error
+## On Phenomenology of Error
 Allow me to begin not with the resounding triumph of a perfect performance, but with the squawk of an untuned clarinet—my own, age eleven, on stage, in front of both adoring family and regrettably, a video camera. There I was, poised to render Mozart with mathematical precision, only for my left pinky to rebel, slipping not onto the key but into infamy. The note—a full semitone sharp—hung in the air like a badly timed punchline. For a frozen moment, the world became not the stage, but the space between what was intended and what was lived.
 
 That wrong note, immortalized in both VHS and family lore, is—absurdly—the only measure from that entire recital I can still recall. Not the practiced passages, nor the fleeting applause, but the raw, pulsing embarrassment of the error. And yet, now, when I hear recordings too immaculate, I feel a kind of existential itch: where is the human hiding? Give me the squeak, the hesitation, the typox with character, the evidence that “someone”—not “something”—was here.
