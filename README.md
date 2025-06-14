@@ -24,7 +24,7 @@ Perhaps, then, our errors feel “alive” not despite their deviation from perf
 
 So yes, the next time you find an embarrassing typo or a stray musical note, cherish it. For all its awkward incongruence, it is as close to evidence of a soul’s passage as you are likely to find in this algorithmically laundered world.
 
-(I trust you will forgive any mistaxes herein; should you find any, rest assured they are left in with the utmost philosophical intention, and absolutely not for lack of a copyeditor.)
+(I trust you will forgive any mistakxes herein; should you find any, rest assured they are left in with the utmost philosophical intention, and absolutely not for lack of a copyeditor.)
 
 ## Perfection Fatigue: Do you get tired of being right for others? 
 
